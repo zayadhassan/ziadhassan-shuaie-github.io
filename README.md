@@ -2,7 +2,7 @@
 
 **برنامج موهبة الاثرائي الاكاديمي - الصيفي 2025**  
 **مسار:** كن مبرمجاً  
-📧 Email: [wsamtyf1999@gmail.com](mailto:zayadhassan289@gmail.com)  
+📧 Email: [zayadhassan289@gmail.com](mailto:zayadhassan289@gmail.com)  
 📱 Phone: 0506309059 
 
 ---
